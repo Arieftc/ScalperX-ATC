@@ -1,1 +1,0 @@
-# ScalperX-ATC
